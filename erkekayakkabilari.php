@@ -1,0 +1,1 @@
+bura erkekkk
